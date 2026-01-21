@@ -1,4 +1,4 @@
-![alt text](https://i.pinimg.com/1200x/28/1e/c4/281ec479ddb56f8624389d3074907a6b.jpg)
+![alt text](https://i.pinimg.com/originals/a9/9d/57/a99d5708b68d44cdc725c59e17cc2167.gif)
    ![alt text](https://autism.crd.co/assets/images/gallery06/c06f33a3.png?v=d6547f5c)　　**ㅤ𝓐dora**  boi　awesome　
 
 ✚　[./sonbat](https://rentry.co/dorizu)　![alt text](https://autism.crd.co/assets/images/gallery07/df85aeb0_original.gif?v=d6547f5c) 　[./vengeance](https://rentry.co/damiansverse)     ⌕⠀ ⨟⠀⠀
