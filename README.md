@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-﹒　　[rentry](https://rentry.co/dorizu/)　　　[ata](https://dorizucore.atabook.org/)　　　𓈒
+﹒　　dori　　　16yo　　　𓈒　　
 </p>
 
 <p align="center">
