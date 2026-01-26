@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-﹒　　#1 deku/batman beyond fan　　　𓈒　　
+﹒　　#1 **deku && finn fan**　　　𓈒　　
 </p>
 
 <p align="center">
