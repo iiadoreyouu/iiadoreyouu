@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-﹒　　txt　　　txt　　　𓈒
+﹒　　[rentry](https://rentry.co/dorizu/)　　　[ata](https://dorizucore.atabook.org/)　　　𓈒
 </p>
 
 <p align="center">
