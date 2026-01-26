@@ -5,6 +5,10 @@
 </p>
 
 <p align="center">
+  <img src="https://cdn.discordapp.com/emojis/1114036115918295131.webp?size=40&quality=lossless">
+</p>
+
+<p align="center">
 ﹒　　#1 deku && finn fan　　　𓈒　　
 </p>
 
