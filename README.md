@@ -2,5 +2,4 @@
 
 ⠀@**dorii**
  adora / 16yo⠀
-✚ ₊⠀[straw](https://adorkii.straw.page/)
-[ata](https://dorizucore.atabook.org/)
+✚ ₊⠀[straw](https://adorkii.straw.page/) && [rentry](https://dorizucore.atabook.org/)
