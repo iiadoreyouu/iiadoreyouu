@@ -1,3 +1,3 @@
-![alt text](https://64.media.tumblr.com/2b4ec3333419ab602748d0550e3e3eb4/216ddc597ba73055-51/s1280x1920/d84908fa95c199652ef779f7f710a306944b7c47.pnj){30:30%}
+![alt text](https://64.media.tumblr.com/039aa97eb5105c145d63c6ccfb36931b/216ddc597ba73055-29/s250x400/5211888eafb644a3b3480ac7aa1f584cf47026a7.gifv)
 ﹒　　dori　　　fem terms　　　𓈒
 ᛝㅤ𓈒　　　16yo 　　　::　　　audhd
