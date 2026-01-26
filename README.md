@@ -2,5 +2,5 @@
 
 ⠀@username
 ⠀ • name ﹒ ageꜝ
-⠀⠀✚ ₊⠀info info info info
-⠀⠀ info info info info info
+•⠀⠀✚ ₊⠀info info info info
+•⠀⠀ info info info info info
