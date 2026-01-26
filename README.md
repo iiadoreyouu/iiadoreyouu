@@ -2,4 +2,4 @@
 
 ⠀[straw](https://adorkii.straw.page/) && [rentry](https://dorizucore.atabook.org/)
 - ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
-name          prns           
+- name          prns           
