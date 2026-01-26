@@ -10,8 +10,4 @@
   <img src="https://64.media.tumblr.com/1d2756bca018268f6fd669c52c399e75/8e85736c52f5983f-77/s400x600/15c8df310b194538d08509149dab44194b534a5f.pnj">
 </p>
 
-<p align="center">
-  
-[rentry](https://rentry.co/dorizu)
-</p>
 
