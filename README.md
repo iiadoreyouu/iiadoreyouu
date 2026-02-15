@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-﹒　　#1 deku && finn fan　　　𓈒　　
+Σ(⌯ˆ ᗜ ˆ⌯)　　　　#1 deku && finn fan　　　𓈒　　
 </p>
 
 <p align="center">
