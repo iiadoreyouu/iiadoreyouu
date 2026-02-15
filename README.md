@@ -1,22 +1,13 @@
 ## ( ᴗ ̫ ᴗ )　　[rntry](https://rentry.co/dorizu)　 && 　　[ata](https://dorizucore.atabook.org/) 　　&& 　　[gunslol](https://guns.lol/dollidori)
  
 <p align="center">
-  <img src="https://64.media.tumblr.com/2b4ec3333419ab602748d0550e3e3eb4/216ddc597ba73055-51/s250x400/6caa9599ae57bd06161b90a069f0e9c416f643a4.pnj">
-</p>
-
-<p align="center">
-  <img src="https://cdn.discordapp.com/emojis/1114036115918295131.webp?size=40&quality=lossless">   <img src="https://cdn.discordapp.com/emojis/1114276726164443177.webp?size=40&quality=lossless">
-</p>
-
-<p align="center">
-Σ(⌯ˆ ᗜ ˆ⌯)　　　　#1 deku && finn fan　　　𓈒　　
-</p>
-
-<p align="center">
-  <img src="https://64.media.tumblr.com/01567d2143dd22a0d2ef35e9041a257f/825a3b0ba46e54df-e2/s75x75_c1/7d2403ee4d6061598c14fa4e96af63d1e561eef0.gifv">  
-<p align="center">
- 
-  <img src="https://64.media.tumblr.com/1d2756bca018268f6fd669c52c399e75/8e85736c52f5983f-77/s400x600/15c8df310b194538d08509149dab44194b534a5f.pnj">
+  <img src="https://64.media.tumblr.com/a1d9976bc94c495d52092e1c795c59c5/8250520dfb38c225-d9/s1280x1920/9e7d2d5361065f2470dd9c06a6f9cbe5519c1f54.pnj">
 </p>
 
 
+<p align="center">
+Σ(⌯ˆ ᗜ ˆ⌯)　　　　#1 finn fan　　　　　
+</p>
+<p align="center">
+no dni 　　　　(＃— ﹏ —)　　　　
+</p
