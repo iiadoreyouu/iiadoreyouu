@@ -1,4 +1,4 @@
-##　( ᴗ ̫ ᴗ )　　[rntry](https://rentry.co/dorizu)　 && 　　[ata](https://dorizucore.atabook.org/) 　　&& 　　[gunslol](https://guns.lol/dollidori)
+## ( ᴗ ̫ ᴗ )　　[rntry](https://rentry.co/dorizu)　 && 　　[ata](https://dorizucore.atabook.org/) 　　&& 　　[gunslol](https://guns.lol/dollidori)
  
 <p align="center">
   <img src="https://64.media.tumblr.com/2b4ec3333419ab602748d0550e3e3eb4/216ddc597ba73055-51/s250x400/6caa9599ae57bd06161b90a069f0e9c416f643a4.pnj">
