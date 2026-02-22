@@ -1,4 +1,4 @@
-## ( ᴗ ̫ ᴗ )　　[rntry¹](https://rentry.co/dorizu)/[²](https://rentry.co/misskissy)　 && 　　[ata](https://dorizucore.atabook.org/) 　　&& 　　[gunslol](https://guns.lol/dollidori) 　　&& 　　[straw](https://adorkii.straw.page/)
+## ( ᴗ ̫ ᴗ )　　[rntry¹](https://rentry.co/dorizu)/[²](https://rentry.co/misskissy)/[³](https://rentry.co/adoralani)　 && 　　[ata](https://dorizucore.atabook.org/) 　　&& 　　[gunslol](https://guns.lol/dollidori) 　　&& 　　[straw](https://adorkii.straw.page/)
  
 <p align="center">
   <img src="https://64.media.tumblr.com/11de1ccf8b42f51f6da1f63686cdf6f2/422f725aef5117d9-1f/s400x600/d6c484388eba4327acbc70df21e95ccc82cb24c3.pnj">
