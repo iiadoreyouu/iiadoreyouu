@@ -1,7 +1,7 @@
 ## ( ᴗ ̫ ᴗ )　　[rntry](https://rentry.co/dorizu)♡[shared](https://rentry.co/lanidori)✩[alt](https://rentry.co/supadude)　 && 　　[ata](https://dorizucore.atabook.org/) 　　&& 　　[gunslol](https://guns.lol/dollidori) 　　&& 　　[straw](https://adorkii.straw.page/)
  
 <p align="center">
-  <img src="https://64.media.tumblr.com/11de1ccf8b42f51f6da1f63686cdf6f2/422f725aef5117d9-1f/s400x600/d6c484388eba4327acbc70df21e95ccc82cb24c3.pnj">
+  <img src="https://64.media.tumblr.com/0e3feeafd26a5885f197e0ae0923ce28/837da8bd0100e9c5-2d/s500x750/81a9f496ab66eb5f94f0a2019d8944754e97603a.pnj">
 </p>
 
 <p align="center">
