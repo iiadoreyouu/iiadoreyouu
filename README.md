@@ -14,7 +14,7 @@
 Σ(⌯ˆ ᗜ ˆ⌯)　　　　#1 finn fan　　　　　
 </p>
 <p align="center">
-no dni 　　　　(＃— ﹏ —)
+read byf/i　　　　(＃— ﹏ —)
 </p
 
 
