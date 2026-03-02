@@ -22,8 +22,4 @@ no dni 　　　　(＃— ﹏ —)
 </p
 
 
-
-
- <p align="center">
-
  [i like making rentries ok...?](https://rentry.co/bnanimal)
