@@ -16,6 +16,3 @@
 <p align="center">
 read byf/i　　　　(＃— ﹏ —)
 </p
-
-
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ [i like making rentries ok...?](https://rentry.co/bnanimal)
