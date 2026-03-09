@@ -4,4 +4,4 @@
 </p>
 
                             
- 　　　　　　　　　　　　 　　　　　　　　　　　　　　　[straw](https://hehedork.straw.page/)　[ata](https://dorizucore.atabook.org/)　[rentry](https://rentry.co/dorizu)
+ 　　　　　　　　　　　　 　　　　　　　　　　　　　　[straw](https://hehedork.straw.page/)　[ata](https://dorizucore.atabook.org/)　[rentry](https://rentry.co/dorizu)
