@@ -4,4 +4,4 @@
 </p>
 
                             
- 　　　　　　　　　　　　 　　　　　　　　　　　　　　[straw](https://hehedork.straw.page/)　[ata](https://dorizucore.atabook.org/)　[rntry](https://rentry.co/tomchud)
+ 　　　　　　　　　　　　 　　　　　　　　　　　　　　[straw](https://hehedork.straw.page/)　[新book](https://dorizucore.atabook.org/)　[rntry](https://rentry.co/tomchud)
