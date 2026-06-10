@@ -31,5 +31,7 @@
 <sub>${\texttt{\color{#1D3461} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
 <p align="center">
 
+⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀⠀⠀　⠀⠀　⠀⠀　⠀⠀　　special thnks 2 [@nightmareofy0u](https://github.com/nightmareofy0u) <3 u da goat
+
 
 
