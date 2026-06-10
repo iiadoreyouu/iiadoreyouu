@@ -28,11 +28,8 @@
 <p align="center">
 
 <p align="center">
-<sub>${\texttt{\color{#6EA4BF} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
+<sub>${\texttt{\color{#1D3461} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
 <p align="center">
-<p align="center">
-  <img src="https://64.media.tumblr.com/14bb540f9eac77b2bfbaf783145a5d29/6f171e79d623e803-dd/s400x600/95843d8af7edf111fa2d932e5726c4f7419a4fac.pnj" width="500"/>
-</p>
 
 
 
