@@ -28,7 +28,7 @@
 
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/04b41a5e7cbf7afde63b099e096ffe17/c1b85fbbdf0aef9e-4e/s250x400/6e2662f527777d6b060c1f3273aca1b72f03c8f2.pnj" width="100"/>
+  <img src="https://64.media.tumblr.com/8a6a79c27551547003acb3f3beb0ea8c/7c48fe89e58ba334-40/s75x75_c1/6b09b1f048679a0bc3d4dd9eaa9d9740429ba3d9.gifv" width="50"/>
   
 </p>
 
@@ -43,7 +43,7 @@
 
 
 
-⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀　⠀⠀　⠀⠀　⠀⠀　⠀　⠀⠀　special thnks 2 [@nightmareofy0u](https://github.com/nightmareofy0u) <3 u da goat
+⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀　⠀⠀　⠀⠀　⠀⠀　⠀　⠀⠀　special thnks 2 [@nightmareofy0u](https://github.com/nightmareofy0u) <3 #udagoat
 
 
 
