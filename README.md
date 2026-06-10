@@ -13,6 +13,8 @@
   
 <p align="center">
 <sub>${\texttt{\color{#6EA4BF} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
+<p align="center">
+<sub>${\texttt{\color{#1D3461} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
 
 </p>
 
@@ -30,6 +32,7 @@
 <p align="center">
 <sub>${\texttt{\color{#1D3461} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
 <p align="center">
+<sub>${\texttt{\color{#C2EFEB} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
 
 ⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀⠀⠀　⠀⠀　⠀⠀　⠀⠀　　special thnks 2 [@nightmareofy0u](https://github.com/nightmareofy0u) <3 u da goat
 
