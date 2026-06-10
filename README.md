@@ -6,9 +6,6 @@
 <sub>${\texttt{\color{#C2EFEB} How come I see you and ache instead?}}$ <br> 
   
 <p align="center">
-<img src="https://64.media.tumblr.com/d25a52380ba8bcfeb1e65401411829c2/fbfcd21e350865df-6f/s100x200/e360e965245448bdbb2cb2e8853fb391a5b65984.gifv">
-
-<p align="center">
 <sub>${\texttt{\color{#6EA4BF} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
 
 <p align="center">
