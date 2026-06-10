@@ -1,20 +1,11 @@
-
-<p align="center">
-  <img src="https://64.media.tumblr.com/1b6fe1ed90dbef85ac99a0c0de5e92dd/f6bbb852c3429752-8f/s400x600/3783dda3bb23d330b093f15a1f13316e2c26e57e.pnj" width="100"/>
-</p>
-<p align="center">
-<sub>${\texttt{\color{#1D3461} Why can't we laugh now like we did then?}}$ <br> 
-<p align="center">
-<sub>${\texttt{\color{#6EA4BF} How come I see you and ache instead?}}$ <br> 
-<p align="center">
-<sub>${\texttt{\color{#C2EFEB} How come you only look pleased in bed?}}$ <br> 
-<p align="center">
-<sub>${\texttt{\color{#ECFEE8} Let's climb the cliff edge and jump again.}}$ <br> 
   
 <p align="center">
 <sub>${\texttt{\color{#6EA4BF} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
 <p align="center">
 <sub>${\texttt{\color{#1D3461} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/1b6fe1ed90dbef85ac99a0c0de5e92dd/f6bbb852c3429752-8f/s400x600/3783dda3bb23d330b093f15a1f13316e2c26e57e.pnj" width="100"/>
 
 </p>
 
@@ -34,7 +25,21 @@
 <p align="center">
 <sub>${\texttt{\color{#C2EFEB} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
 
-⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀⠀⠀　⠀⠀　⠀⠀　⠀⠀　　special thnks 2 [@nightmareofy0u](https://github.com/nightmareofy0u) <3 u da goat
+<p align="center">
+  <img src="https://64.media.tumblr.com/04b41a5e7cbf7afde63b099e096ffe17/c1b85fbbdf0aef9e-4e/s250x400/6e2662f527777d6b060c1f3273aca1b72f03c8f2.pnj" width="100"/>
+</p>
+<p align="center">
+<sub>${\texttt{\color{#1D3461} Why can't we laugh now like we did then?}}$ <br> 
+<p align="center">
+<sub>${\texttt{\color{#6EA4BF} How come I see you and ache instead?}}$ <br> 
+<p align="center">
+<sub>${\texttt{\color{#C2EFEB} How come you only look pleased in bed?}}$ <br> 
+<p align="center">
+<sub>${\texttt{\color{#ECFEE8} Let's climb the cliff edge and jump again.}}$ <br> 
+
+
+
+⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀⠀　⠀　⠀⠀　⠀⠀　⠀⠀　⠀　⠀⠀　special thnks 2 [@nightmareofy0u](https://github.com/nightmareofy0u) <3 u da goat
 
 
 
