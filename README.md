@@ -1,11 +1,17 @@
-　　　　　　　　 　　　　　　　<p align="center">
-  <img src="https://64.media.tumblr.com/b5370f03a143daa92b772a414a427d66/12ee9ba7e985c530-44/s250x400/696de90d2a8d53405a7b5e0959b36911168a422e.pnj">
+<p align="center">
+<sub>${\texttt{\color{#1C3B6B} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
+
+<p align="center">
+  <img src="https://64.media.tumblr.com/0a03136d9c770a916cfd395cec42ccb7/bec824fc8a3ef666-3d/s1280x1920/4941dff9c2c7f819a118ec284cc80817ffb2f9aa.pnj" width="600"/>
 </p>
-
-                            
- 　　　　　　　　　　　　 　　　　　　　　　　　　　　[straw](https://hehedork.straw.page/)　[新book](https://tom-thegoat.atabook.org/)　[rntry](https://rentry.co/tomchud)
-
-
-
-　　　　　　　　　　　 　　　　　　　　　　　　 　　　  ![](https://64.media.tumblr.com/c8085e84786c6dc5b76523d2c1689f4e/b4feb64478b8e301-a7/s250x400/37fe3ccdf3d13196e9ff88065336783a94ec535f.gifv)
-　　　　　　　　　　　 　　　　　　　　
+<p align="center">
+　
+<p align="center">
+ <a href="https://hehedork.straw.page/"><img src="https://64.media.tumblr.com/d717d3ed62d44891c84a225f1435e887/93b2ab2578389f7b-00/s250x400/aa0e34516c1940f47632bdd02a6e5ad0aeb751f0.pnj"/> </a>　　　<a href="https://tom-thegoat.atabook.org/"><img src="https://64.media.tumblr.com/c6e5c4e589382943f87930d70bf07e6b/1df0a354c3df01f5-b9/s250x400/99f40cb7d61b4278dd2af0946758e1bafd7f3d50.pnj"/> </a>　　　<a href="https://rentry.co/tomchud"><img src="https://64.media.tumblr.com/fd5de1ce53f603d9a6aa274fcca557ae/1df0a354c3df01f5-5f/s250x400/a32d3a834ec116d62c0cdc3827e3976d986cfbbc.pnj"/> </a>
+</p>
+<p align="center">
+　
+<p align="center">
+<sub>${\texttt{\color{#1C3B6B} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
+<p align="center">
+　
