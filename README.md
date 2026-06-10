@@ -25,9 +25,13 @@
 <p align="center">
 <sub>${\texttt{\color{#C2EFEB} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
 
+
+
 <p align="center">
   <img src="https://64.media.tumblr.com/04b41a5e7cbf7afde63b099e096ffe17/c1b85fbbdf0aef9e-4e/s250x400/6e2662f527777d6b060c1f3273aca1b72f03c8f2.pnj" width="100"/>
+  
 </p>
+
 <p align="center">
 <sub>${\texttt{\color{#1D3461} Why can't we laugh now like we did then?}}$ <br> 
 <p align="center">
