@@ -1,4 +1,7 @@
-  
+　⠀⠀　⠀　⠀⠀　　⠀⠀　⠀　⠀⠀　⠀⠀　⠀⠀　⠀　⠀⠀　⠀⠀⠀![](https://64.media.tumblr.com/2c8404ce1514799d3e20378c469ab9d7/f2e797ecdfd63f20-7c/s75x75_c1/822a0f34ae338cd81b27e161fb861372bdc56c06.gifv)　⠀⠀　[⍴іᥒᥱᥲ⍴⍴ᥣᥱ᥉.](https://youtu.be/78DVtcsT26k?si=WbDbcYzFzlZjEHwI)　
+
+
+
 <p align="center">
 <sub>${\texttt{\color{#6EA4BF} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
 <p align="center">
