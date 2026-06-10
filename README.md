@@ -3,7 +3,7 @@
   <img src="https://64.media.tumblr.com/1b6fe1ed90dbef85ac99a0c0de5e92dd/f6bbb852c3429752-8f/s400x600/3783dda3bb23d330b093f15a1f13316e2c26e57e.pnj" width="100"/>
 </p>
 <p align="center">
-<sub>${\texttt{\color{#41337A} Why can't we laugh now like we did then?}}$ <br> 
+<sub>${\texttt{\color{#1D3461} Why can't we laugh now like we did then?}}$ <br> 
 <p align="center">
 <sub>${\texttt{\color{#6EA4BF} How come I see you and ache instead?}}$ <br> 
 <p align="center">
