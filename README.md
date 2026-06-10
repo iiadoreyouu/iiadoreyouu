@@ -1,5 +1,9 @@
 <p align="center">
-<sub>$<{\texttt{\color{#6EA4BF} Why can't we laugh now like we did then?}}$ <br>
+<sub>${\texttt{\color{#6EA4BF} Why can't we laugh now like we did then?}}$ <br> 
+<p align="center">
+<sub>${\texttt{\color{#C2EFEB} How come I see you and ache instead?}}$ <br> 
+  
+
 
 <p align="center">
 <sub>${\texttt{\color{#6EA4BF} ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀}}$ <br>
