@@ -16,7 +16,7 @@
 <p align="center">
 　　　<img src="https://files.catbox.moe/vnd5f4.png"
 <p align="center">
-   any/all　　　infj　　　-t 
+   any/ᵃˡˡ　　　infj　　　⁻ᵗ 
 <p align="center"> 
 c/h　　　　　　enc　　　　　　w2i　　　　　　read byf/i! 
   
