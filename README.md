@@ -8,6 +8,8 @@
 
  <p align="center">
  <img src="https://i.pinimg.com/736x/6d/bb/c2/6dbbc288ed96204e45ed47ce8ecc5080.jpg" width="400"/>
+  <p align="center">
+  <img src="https://files.catbox.moe/p6co6p.png" width="400"/>
   
 </p>
 
