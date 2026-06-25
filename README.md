@@ -11,12 +11,14 @@
 
 
 <p align="center">
-𓏵 　　txt　　　txt　　　txt  　　　  
+　　𝓘s　　　𝒯his　　　𝒯hing　　　on?　 
+ 
 <p align="center">
-  𓎟𓎟prn/prn　　　﹙emoji﹚
+　　　<img src="https://files.catbox.moe/5ae743.gif"
 <p align="center">
-   txt　　　txt　　　txt 
-txt:　　　txt　　　txt　　　txt 
+   any/all　　　infj　　　-t 
+<p align="center"> 
+c/h　　　　　　enc　　　　　　w2i　　　　　　read byf/i! 
   
   <p align="center">
   <img src="https://files.catbox.moe/p6co6p.png" width="400"/>
