@@ -14,7 +14,7 @@
 　　𝓘s　　　𝒯his　　　𝒯hing　　　on?　 
  
 <p align="center">
-　　　<img src="https://files.catbox.moe/5ae743.gif"
+　　　<img src="https://files.catbox.moe/3yifnt.png"
 <p align="center">
    any/all　　　infj　　　-t 
 <p align="center"> 
