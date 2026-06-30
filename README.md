@@ -19,7 +19,7 @@
 <p align="center">
    she/any/ᵃˡˡ　　　infj　　　⁻ᵗ 
 <p align="center"> 
-c/h　　　　　　enc　　　　　　w2i　　　　　　read byf/i! 
+c/h　　　　　　so4 sp6 sx9　　　　　　w2i　　　　　　read byf/i! 
   
   <p align="center">
   <img src="https://files.catbox.moe/p6co6p.png" width="400"/>
