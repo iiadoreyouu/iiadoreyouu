@@ -21,13 +21,7 @@
 <p align="center"> 
 c/h　　　　　　so4 sp6 sx9　　　　　　w2i　　　　　　read byf/i! 
   
-  <p align="center">
-  <img src="https://files.catbox.moe/p6co6p.png" width="400"/>
-  
-</p>
-
-⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/5ae743.gif)⠀⠀⠀<img src="https://64.media.tumblr.com/6a4ddc146214cb1650a76130d3af7758/755c21cccf786d17-c6/s100x200/87794403eac90f79be0bbbfec28c89d456706dab.pnj" width="40"/> <img src="https://64.media.tumblr.com/f9c7c85655021aa9d7dba0f37a1d2658/20648c8ce38c65f7-02/s100x200/723aeaa55b1eb00c8b7ac66864cb9a88769bf3c8.pnj" width="40"/>⠀⠀⠀![](https://files.catbox.moe/5ae743.gif)
+ 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://64.media.tumblr.com/4e4be61b327cd78054aa0d5dd1e6f63d/2535a653c1331b3a-98/s75x75_c1/5ce928e02afebc4c39e81c2a24cf497b8c92d2a4.gifv)⠀⠀⠀⠀⠀⠀𝓑irds don't sing, they just fall from the sky ... 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
