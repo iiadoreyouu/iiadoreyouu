@@ -10,21 +10,3 @@
  <p align="center">
  <img src="https://i.pinimg.com/1200x/79/3d/5f/793d5f1ea73fd2c61d9fd82e35bedb89.jpg" width="400"/>
 
-
-<p align="center">
-　　lala　　　lolol　　　yoloo　　　wowie　 
- 
-<p align="center">
-　　　<img src="https://64.media.tumblr.com/15ebea4f739f21a7da70013b7b629eee/e8ed46b919e6b0ef-e5/s100x200/605313927d8a91dbddc06a81a1ccb4d142abce50.gifv" width="50"/>
-<p align="center">
-   she/any/ᵃˡˡ　　　infj　　　⁻ᵗ 
-<p align="center"> 
-c/h　　　　　　so4 sp6 sx9　　　　　　w2i　　　　　　read byf/i! 
-  
- 
-　　　
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-
-
