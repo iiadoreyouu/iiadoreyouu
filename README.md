@@ -12,7 +12,7 @@
 
 
 <p align="center">
-　　𝓘s　　　𝒯his　　　𝒯hing　　　on?　 
+　　lala　　　lolol　　　yoloo　　　wowie　 
  
 <p align="center">
 　　　<img src="https://64.media.tumblr.com/15ebea4f739f21a7da70013b7b629eee/e8ed46b919e6b0ef-e5/s100x200/605313927d8a91dbddc06a81a1ccb4d142abce50.gifv" width="50"/>
