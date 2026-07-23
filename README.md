@@ -1,2 +1,1 @@
-![](https://64.media.tumblr.com/6ca4411cefcee6857cad4e9bb8b94ab9/28e46bb67d9ba8e1-12/s400x600/f64216c4c84d44111a1adaa99d46b597571c0775.gifv)
- omfg another wip until i figre out how to code again
+![](https://media.discordapp.net/attachments/1325505956997496915/1529721488561930281/Untitled338_20260723012700.png?ex=6a62f7a7&is=6a61a627&hm=dfe321d00de56a8bac6cd3dbb77a27164d013a54c4590d11f83c677bda8b66a0&=&format=webp&quality=lossless&width=668&height=802)
