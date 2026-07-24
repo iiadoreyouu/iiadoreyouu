@@ -5,6 +5,6 @@
 
 <br clear="right" />
 
-${\texttt{\color{#A0682F} txt txt txt txt}}$ <br> ![](https://64.media.tumblr.com/9e833ab82560d7c9d4728e82ebee87b5/a60c4a1fea7aca07-04/s75x75_c1/cdbcbf3309c3b0bf557f10a5f006e7255300237d.gifv) ${\texttt{\color{#A0682F} txt txt txt txt}}$ <br>
+${\texttt{\color{#989A94} txt txt txt txt}}$ <br> ![](https://64.media.tumblr.com/9e833ab82560d7c9d4728e82ebee87b5/a60c4a1fea7aca07-04/s75x75_c1/cdbcbf3309c3b0bf557f10a5f006e7255300237d.gifv) ${\texttt{\color{#939593} txt txt txt txt}}$ <br>
 
-<sub>${\texttt{\color{#93633B} txt txt txt txt txt txt}}$ <br> 
+![](https://64.media.tumblr.com/c6c5fad58a4b46f65f6728f48f7215cb/37221ecbab8edd94-e8/s75x75_c1/73599740d85e7cf17300a7e6d2642eee156bea7a.gifv) ${\texttt{\color{#93633B} txt txt txt txt txt txt}}$ <br> 
