@@ -5,6 +5,6 @@
 
 <br clear="right" />
 
-<sub>${\texttt{\color{#A0682F} txt txt txt txt txt txt}}$ <br> 
+${\texttt{\color{#A0682F} txt txt txt txt txt txt}}$ <br> 
 
 <sub>${\texttt{\color{#93633B} txt txt txt txt txt txt}}$ <br> 
