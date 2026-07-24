@@ -5,4 +5,6 @@
 
 <br clear="right" />
 
-ou8uu shii adora
+<sub>${\texttt{\color{#A0682F} txt txt txt txt txt txt}}$ <br> 
+
+<sub>${\texttt{\color{#93633B} txt txt txt txt txt txt}}$ <br> 
