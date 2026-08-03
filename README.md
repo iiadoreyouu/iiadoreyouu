@@ -10,3 +10,5 @@ ${\texttt{\color{#989A94} CLEMENTINE ou tamara/sam}}$ <br> ![](https://64.media.
 ![](https://64.media.tumblr.com/4e4be61b327cd78054aa0d5dd1e6f63d/2535a653c1331b3a-98/s75x75_c1/5ce928e02afebc4c39e81c2a24cf497b8c92d2a4.gifv) ${\texttt{\color{#EC2F20} BASIC DNI}}$ <br> ${\texttt{\color{#EC2F20} TWDG DBH DC ENJOYER}}$ <br> 
 
 [ʳᵉⁿᵗʳʸ](https://rentry.co/dqmian)      [ᵃᵗᵃᵇᵒᵒᵏ](https://superbook.atabook.org/)
+
+![](https://64.media.tumblr.com/3e53d1890d72fc4d556156639262631e/e25cb6a7868ee9ff-2b/s250x400/b87df76e83f889c2310268b37774add9e1ae2e70.pnj)
