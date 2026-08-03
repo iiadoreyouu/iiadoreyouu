@@ -1,5 +1,5 @@
 
-<img align="left" width="300" src="https://media.discordapp.net/attachments/1325505956997496915/1530336122939637910/Untitled338_20260724180917.png?ex=6a653413&is=6a63e293&hm=2bc26a395c10d48d5954b9e67d995d67d2a903fb6f341163dde991107319f872&=&format=webp&quality=lossless&width=668&height=802">
+<img align="left" width="300" src="https://i.pinimg.com/736x/c8/6b/0b/c86b0b1e0dd8d49631631006e75a0d49.jpg">
 
 ![](https://64.media.tumblr.com/eb2c31a793afabce1e69ad96ef376dc7/afbd5b4ee49c7302-24/s250x400/6b710bd37bc35823b8946a7f4b534bf5fde338fd.gifv)
 
