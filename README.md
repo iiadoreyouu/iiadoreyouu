@@ -1,7 +1,7 @@
 
 <img align="left" width="400" src="https://files.catbox.moe/n7bwdk.png">
 
-<img align="center" width="300" src="https://64.media.tumblr.com/3bc091e8e36b41d1c7aec85a0892aacb/7c967a4b2c7339c4-4c/s2048x3072/e2773143b46e246219f8c595559270affe6af161.gifv"> 
+<img align="center" width="100" src="https://64.media.tumblr.com/938647fdb61407e68d134118e953ed33/ccb30aed6a3dbaa7-41/s75x75_c1/b1f1b86cbd24b58d9d5327e6e1514371613c5ec6.gifv"> 
 
 𝒢𓍢　　damian ou adora　　![𓈒](https://64.media.tumblr.com/1c5e31bbc4107c7eb389593488268d2c/a39fd5e0d1b02e45-b2/s75x75_c1/5ebf33607d85a0e52977fe4e22d6f78d5aa7590f.gifv)　　O6
 
@@ -15,4 +15,4 @@
    　　　　　　649 infj　　𓈒　　![](https://64.media.tumblr.com/fa99064709bf76451e86a1561ee1cb77/4d6efb5a6bf7d053-99/s75x75_c1/c0eb9ddc99e3e198e4925645cf8d0a51baea300f.gifv)
    
 
-<img align="center" width="300" src="https://64.media.tumblr.com/3bc091e8e36b41d1c7aec85a0892aacb/7c967a4b2c7339c4-4c/s2048x3072/e2773143b46e246219f8c595559270affe6af161.gifv"> 
+<img align="center" width="150" src="https://64.media.tumblr.com/8b6dbaefc2cea6ac073f47994ef4f5d9/70a56a05c2f8de80-63/s250x400/2962268e270208815b92a17fe1c50eeda92c3b48.gifv"> 
