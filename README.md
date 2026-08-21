@@ -15,4 +15,4 @@
    　　　　　　649 infj　　𓈒　　![](https://64.media.tumblr.com/fa99064709bf76451e86a1561ee1cb77/4d6efb5a6bf7d053-99/s75x75_c1/c0eb9ddc99e3e198e4925645cf8d0a51baea300f.gifv)
    
 
-<img align="center" width="150" src="https://64.media.tumblr.com/8b6dbaefc2cea6ac073f47994ef4f5d9/70a56a05c2f8de80-63/s250x400/2962268e270208815b92a17fe1c50eeda92c3b48.gifv"> 
+　　　　　[ʳⁿᵗʳʸ](https://rentry.co/dqmian) [ᵃᵗᵃᵇᵒᵒᵏ](https://superbook.atabook.org/)
