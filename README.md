@@ -16,4 +16,4 @@
    　　　　　　649 infj　　𓈒　　![](https://64.media.tumblr.com/fa99064709bf76451e86a1561ee1cb77/4d6efb5a6bf7d053-99/s75x75_c1/c0eb9ddc99e3e198e4925645cf8d0a51baea300f.gifv)
    
 
-　　　　　　[ʳⁿᵗʳʸ](https://rentry.co/dqmian) [ᵃᵗᵃᵇᵒᵒᵏ](https://superbook.atabook.org/)
+　　　　　　[ʳⁿᵗʳʸ](https://rentry.co/dqmian) [ᵃᵗᵃᵇᵒᵒᵏ](https://superbook.atabook.org/) [ˡᵒᵛᵉᵐᵃᶦˡ](https://rentry.co/grqyson)
