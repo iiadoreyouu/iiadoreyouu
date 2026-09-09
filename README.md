@@ -1,7 +1,7 @@
 
-<img align="left" width="400" src="https://files.catbox.moe/n7bwdk.png">
+<img align="left" width="250" src="https://64.media.tumblr.com/0ac088e884062943fe80d72f9fd74178/11f7432d91374a16-2f/s400x600/f69729c32c30f0c32266d7675a9f3bd138adb297.pnj">
 
-<img align="center" width="100" src="https://64.media.tumblr.com/938647fdb61407e68d134118e953ed33/ccb30aed6a3dbaa7-41/s75x75_c1/b1f1b86cbd24b58d9d5327e6e1514371613c5ec6.gifv"> 𓈒 𓈒 𓈒 ⠀⠀⠀✚ ⠀⠀⠀ [♡](https://batman.fandom.com/wiki/Dick_Grayson)
+<img align="center" width="50" src="https://64.media.tumblr.com/4a3fc96ec50e9e348a37f9b8de567916/0ed57e0a8d70951b-53/s75x75_c1/f4faae34d2bdf092e8524ded30bec13c013e5478.gifv"> 𓈒 𓈒 𓈒 ⠀⠀⠀✚ ⠀⠀⠀ [♡](https://batman.fandom.com/wiki/Dick_Grayson)
 
   𓈒  𓏼  dɑოian 
 𓈒 𓈒 𓈒 ⠀⠀⠀⠀ ⠀ 𐂯 　　　　![𓈒](https://64.media.tumblr.com/a26bc96f6a0750e70ecf319c57f61058/6685cda690089f06-04/s75x75_c1/f0d52a02a00e34948f419fe89c23c3a004a5d369.gifv)　　
