@@ -13,7 +13,6 @@
 
 　　![𓈒](https://64.media.tumblr.com/5e92994bd905dea234cccf3de6beb073/e38dde16152ab0ec-bb/s75x75_c1/f0733f074ec391ff621079674f2a34bf9ce2076f.gifv)　　#staywhimsy　𝒢𓍢
 
-   　　　　　　649 infj　　𓈒　　![](https://64.media.tumblr.com/0a6fc7e884d98bfba98925c34024d0c7/e38dde16152ab0ec-9c/s75x75_c1/9aae969c78cd9653b2e38022d7e65079b5729de0.gifv)
-   
+   　<img align="center" width="40" src="https://64.media.tumblr.com/16f4f462be972a605d8ba5bf47e0a70a/fbb0ab3ecee45482-5c/s75x75_c1/45407b1ebdcaacc37692015a05391c0b19d4ba1d.gifv">　reოy's angel 　<img align="center" width="40" src="https://64.media.tumblr.com/c4aa1f966e50e829b9e5d0175d6a61b9/fbb0ab3ecee45482-d5/s75x75_c1/6a8450a7b4a1a70df03fdc3e1a9ed2c232959da9.gifv">　　
 
 　　　[ʳⁿᵗʳʸ](https://rentry.co/dqmian) [ᵃᵗᵃᵇᵒᵒᵏ](https://superbook.atabook.org/) [♡ᵐᵃᶦˡ](https://rentry.co/grqyson) [ˢᵗʳᵃʷᵖᵃᵍᵉ](https://whimsyical.straw.page/)
