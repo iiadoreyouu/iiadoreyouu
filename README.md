@@ -9,7 +9,7 @@
 　　  <img src="https://64.media.tumblr.com/2739faa656d509fa4cec92119a8f797c/b12b6cec339f1f5e-af/s75x75_c1/02444293cae92ac022cb2ec60c52fc8f1f9046af.gifv" width="40"/>　　16yo , pocblk　　
 
 
-　　<img align="center" width="188" src="https://i.pinimg.com/736x/28/80/71/2880711b0d0dce13138a7d0be7986e95.jpg">
+　　<img align="center" width="200" src="https://i.pinimg.com/1200x/10/ab/da/10abda8f2a9216b31a5efdf26066e74b.jpg">
 
    　<img align="center" width="40" src="https://64.media.tumblr.com/16f4f462be972a605d8ba5bf47e0a70a/fbb0ab3ecee45482-5c/s75x75_c1/45407b1ebdcaacc37692015a05391c0b19d4ba1d.gifv">　reოy's angel 　<img align="center" width="40" src="https://64.media.tumblr.com/c4aa1f966e50e829b9e5d0175d6a61b9/fbb0ab3ecee45482-d5/s75x75_c1/6a8450a7b4a1a70df03fdc3e1a9ed2c232959da9.gifv">　　
 
