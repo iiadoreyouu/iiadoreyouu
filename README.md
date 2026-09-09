@@ -9,7 +9,7 @@
 　　![](https://64.media.tumblr.com/fe5913d3e971dea9a049e09003c54fe1/6685cda690089f06-8d/s75x75_c1/e2c76094f7ac5972e4c095277e8066c8d1fa9e49.gifv)　　16yo , pocblk　　𝒢𓍢
 
 
-　　<img align="center" width="200" src="https://64.media.tumblr.com/6a7e9d108723122e86b2de142bed76a4/5b892d3053fb16ce-c1/s2048x3072/e8d73e87da39c16e50dd109f38ec6e358aa6aafd.pnj">
+　　<img align="center" width="188" src="https://64.media.tumblr.com/b9525e305197d503bf0d6662f6df56e8/a2786b15a2d71ce6-72/s2048x3072/306ac9ac758ada04707f94a56d9d109be1f420d8.pnj">
 
 　　![𓈒](https://64.media.tumblr.com/5e92994bd905dea234cccf3de6beb073/e38dde16152ab0ec-bb/s75x75_c1/f0733f074ec391ff621079674f2a34bf9ce2076f.gifv)　　#staywhimsy　𝒢𓍢
 
