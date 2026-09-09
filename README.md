@@ -3,8 +3,8 @@
 
 <img align="center" width="70" src="https://funko.com/on/demandware.static/-/Sites-funko-master-catalog/default/dwb664c5a6/images/funko/upload/1/86090_Marvel_S1_HoliDivaRogue_POP_EDIT_T7_GLAM_Frontview-WEB.png"> 𓈒 𓈒 𓈒 ⠀⠀⠀✚ ⠀⠀⠀ [♡](https://batman.fandom.com/wiki/Dick_Grayson)
 
-  𓈒  𓏼  dɑოian 
-𓈒 𓈒 𓈒 ⠀⠀⠀⠀ ⠀ 𐂯 　　　　<img src="https://64.media.tumblr.com/c11ba0d53b0d8137813493d9ffe667df/332662bcadb2f47e-69/s75x75_c1/67cfcfa0e9d97f1eedfd31eef35ed1557f855d5d.gifv" width="40"/> 𝟶𝟾-𝟸𝟿
+  ꉂ  (^ ᴗ ^)
+⠀⠀⠀⠀ ⠀ 𐂯 　　　　<img src="https://64.media.tumblr.com/c11ba0d53b0d8137813493d9ffe667df/332662bcadb2f47e-69/s75x75_c1/67cfcfa0e9d97f1eedfd31eef35ed1557f855d5d.gifv" width="40"/> 𝟶𝟾-𝟸𝟿
 ⠀⠀⠀⠀ ⠀ 
 ⠀⠀⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀ ⠀
 ⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀  sһᥱ/һym
