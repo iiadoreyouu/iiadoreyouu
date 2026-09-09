@@ -6,7 +6,7 @@
   𓈒  𓏼  dɑოian 
 𓈒 𓈒 𓈒 ⠀⠀⠀⠀ ⠀ 𐂯 　　　　<img src="https://64.media.tumblr.com/c11ba0d53b0d8137813493d9ffe667df/332662bcadb2f47e-69/s75x75_c1/67cfcfa0e9d97f1eedfd31eef35ed1557f855d5d.gifv" width="40"/>
 
-　　  <img src="https://64.media.tumblr.com/2739faa656d509fa4cec92119a8f797c/b12b6cec339f1f5e-af/s75x75_c1/02444293cae92ac022cb2ec60c52fc8f1f9046af.gifv" width="40"/>　　16yo , pocblk　　
+　　  <img src="https://funko.com/on/demandware.static/-/Sites-funko-master-catalog/default/dwa4e6393a/images/funko/upload/74815_POPVinyl_TeenSpirit_POP4_GLAM-WEB%20-%20Copy.png" width="70"/>　　16yo , pocblk　　
 
 
 　　<img align="center" width="200" src="https://i.pinimg.com/1200x/10/ab/da/10abda8f2a9216b31a5efdf26066e74b.jpg">
