@@ -14,6 +14,8 @@
 
 　　<img align="center" width="200" src="https://i.pinimg.com/1200x/10/ab/da/10abda8f2a9216b31a5efdf26066e74b.jpg">
 
-   　　<img align="center" width="40" src="https://64.media.tumblr.com/16f4f462be972a605d8ba5bf47e0a70a/fbb0ab3ecee45482-5c/s75x75_c1/45407b1ebdcaacc37692015a05391c0b19d4ba1d.gifv">　rᥱოy's ᥲᥒgᥱᥣ 　<img align="center" width="40" src="https://64.media.tumblr.com/c4aa1f966e50e829b9e5d0175d6a61b9/fbb0ab3ecee45482-d5/s75x75_c1/6a8450a7b4a1a70df03fdc3e1a9ed2c232959da9.gifv">　　
+   　　<img align="center" width="40" src="https://64.media.tumblr.com/16f4f462be972a605d8ba5bf47e0a70a/fbb0ab3ecee45482-5c/s75x75_c1/45407b1ebdcaacc37692015a05391c0b19d4ba1d.gifv">　rᥱოy's ᥲᥒgᥱᥣ　<img align="center" width="40" src="https://64.media.tumblr.com/c4aa1f966e50e829b9e5d0175d6a61b9/fbb0ab3ecee45482-d5/s75x75_c1/6a8450a7b4a1a70df03fdc3e1a9ed2c232959da9.gifv">　　
 
 　　　[ʳⁿᵗʳʸ](https://rentry.co/dqmian) [ᵃᵗᵃᵇᵒᵒᵏ](https://superbook.atabook.org/) [♡ᵐᵃᶦˡ](https://rentry.co/grqyson) [ˢᵗʳᵃʷᵖᵃᵍᵉ](https://whimsyical.straw.page/)
+
+   ok shoutout lani
