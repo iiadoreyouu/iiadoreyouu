@@ -23,4 +23,3 @@
 
 　　　[ʳⁿᵗʳʸ](https://rentry.co/dqmian) [ᵃᵗᵃᵇᵒᵒᵏ](https://superbook.atabook.org/) [♡ᵐᵃᶦˡ](https://rentry.co/grqyson) [ˢᵗʳᵃʷᵖᵃᵍᵉ](https://whimsyical.straw.page/)
 
-   ok shoutout lani ok shoutout Rika ok shoutout emmi
