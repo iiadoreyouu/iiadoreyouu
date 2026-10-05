@@ -1,7 +1,7 @@
 
-<img align="left" width="250" src="https://64.media.tumblr.com/0ac088e884062943fe80d72f9fd74178/11f7432d91374a16-2f/s400x600/f69729c32c30f0c32266d7675a9f3bd138adb297.pnj">
+<img align="left" width="250" src="https://i.pinimg.com/736x/6c/c0/bb/6cc0bb5efbac47699a4ad7f9d1f79082.jpg">
 
-<img align="center" width="70" src="https://funko.com/on/demandware.static/-/Sites-funko-master-catalog/default/dwb664c5a6/images/funko/upload/1/86090_Marvel_S1_HoliDivaRogue_POP_EDIT_T7_GLAM_Frontview-WEB.png"> 𓈒 𓈒 𓈒 ⠀⠀⠀✚ ⠀⠀⠀ 𝒦υ𝗋𝗍 ou ℭlem
+<img align="center" width="70" src="https://cdn.shopify.com/s/files/1/0125/8261/7145/files/aHwROdoFyiWtDVVCYCNaS9OuqDzU5qR72sZ0Lfw9szE_1000x.png.webp?v=1695652874"> 𓈒 𓈒 𓈒 ⠀⠀⠀✚ ⠀⠀⠀ 𝒦υ𝗋𝗍 ou ℭlem
 
   ꉂ  (^ ᴗ ^)
 ⠀⠀⠀⠀ ⠀ 𐂯 　　　　<img src="https://64.media.tumblr.com/c11ba0d53b0d8137813493d9ffe667df/332662bcadb2f47e-69/s75x75_c1/67cfcfa0e9d97f1eedfd31eef35ed1557f855d5d.gifv" width="40"/> 𝟶𝟾-𝟸𝟿
