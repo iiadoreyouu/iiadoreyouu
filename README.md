@@ -4,7 +4,7 @@
 <img align="center" width="70" src="https://cdn.shopify.com/s/files/1/0125/8261/7145/files/aHwROdoFyiWtDVVCYCNaS9OuqDzU5qR72sZ0Lfw9szE_1000x.png.webp?v=1695652874"> 𓈒 𓈒 𓈒 ⠀⠀⠀✚ ⠀⠀⠀ tom ou ℭlem
 
   ꉂ  (^ ᴗ ^)
-⠀⠀⠀⠀ ⠀ 𐂯 　　　　<img src="https://64.media.tumblr.com/c11ba0d53b0d8137813493d9ffe667df/332662bcadb2f47e-69/s75x75_c1/67cfcfa0e9d97f1eedfd31eef35ed1557f855d5d.gifv" width="40"/> 𝟶𝟾-𝟸𝟿
+⠀⠀⠀⠀ ⠀ 𐂯 　　　　<img src="https://64.media.tumblr.com/63b3143b10be635acc7074d01ccf8701/d771ffc61e5d7e79-9d/s100x200/8e0f04968ae448f5f72d5e5de6d5373148f646c3.pnj" width="40"/> 𝟶𝟾-𝟸𝟿
 ⠀⠀⠀⠀ ⠀ 
 ⠀⠀⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀ ⠀
 ⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀  sһᥱ/һym⠀ ⠀ gᥱᥒძᥱr𝖿ᥲᥱ
