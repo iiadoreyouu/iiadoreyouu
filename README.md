@@ -11,5 +11,3 @@
 
 
 
-　　　[ʳⁿᵗʳʸ](https://rentry.co/dqmian) [ᵃᵗᵃᵇᵒᵒᵏ](https://superbook.atabook.org/) [♡ᵐᵃᶦˡ](https://rentry.co/grqyson) [ˢᵗʳᵃʷᵖᵃᵍᵉ](https://whimsyical.straw.page/)
-
