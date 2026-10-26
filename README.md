@@ -5,4 +5,4 @@
  ⠀⠀⠀  ⠀⠀⠀  ⠀ ⠀⠀⠀ ⠀⠀⠀    ⠀    ⠀⠀⠀   ⠀⠀⠀ ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀[ˢᵗʳʷ🧠](https://theembodimentof2.straw.page/)  ⠀   ⠀   ✟  ⠀    ⠀    ⠀ [ᵃᵗᵃ🍭](https://embodiment-of-tom.atabook.org/)
 
 
-⠀⠀ ⠀⠀⠀   ⠀⠀ ⠀⠀⠀    ⠀  ⠀ ⠀⠀ ⠀⠀⠀    ⠀ [thad](https://github.com/lmmnyre)⠀⠀ ⠀⠀⠀    ⠀ [aki](https://github.com/po1sonstrategy)⠀⠀ ⠀⠀⠀    ⠀ [nat](https://github.com/aliceinmadness)⠀⠀ ⠀⠀⠀    ⠀
+⠀⠀ ⠀⠀⠀   ⠀⠀ ⠀⠀⠀ ⠀⠀⠀   ⠀⠀ ⠀⠀⠀    ⠀  ⠀ ⠀⠀ ⠀⠀⠀ ⠀     ⠀ [thad](https://github.com/lmmnyre)⠀⠀ ⠀⠀⠀    ⠀ [aki](https://github.com/po1sonstrategy)⠀⠀ ⠀⠀⠀    ⠀ [nat](https://github.com/aliceinmadness)⠀⠀ ⠀⠀⠀    ⠀
