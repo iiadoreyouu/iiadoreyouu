@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/bb/2b/d1/bb2bd1f582324bf6d3ca02d3a0dc4a61.jpg" width="200"/>
+  <img src="https://i.pinimg.com/736x/e2/e8/54/e2e85497c00383416f7740f487b02b92.jpg" width="200"/>
 </p>
 
  ⠀⠀⠀  ⠀⠀⠀  ⠀ ⠀⠀⠀ ⠀⠀⠀    ⠀    ⠀⠀⠀   ⠀⠀⠀ ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀  ⠀⠀⠀[strw](https://theembodimentof2.straw.page/)  ⠀   ⠀      ⠀ ͜𓏼✚    ⠀    ⠀ [ata](https://embodiment-of-tom.atabook.org/)
